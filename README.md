@@ -1,0 +1,2 @@
+# premium-anticlastic-001-anticlastic-raising-sinusoidal
+Tired of linear planners that force you to choose between focus and flexibility? The Anticlastic Raising Sinusoidal Planner harnesses the power of opposing curves to balance your priorities, deadlines, and creative flow—all in one Notion dashboard.  This template solves the pain of juggling multiple projects with competing demands. By applying anti
